@@ -1,1 +1,2 @@
 # IM-3-STEM-Homework-Classwork
+Disclaimer: The Files in the Blank Folders do not belong to me. Neither do the ones in complete, they are most likely the property of ©CPM and/or my teacher they just have my work
